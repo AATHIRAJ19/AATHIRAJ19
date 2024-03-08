@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AATHIRAJ19
 - 👀 I’m interested in UI/UX designer
 - 🌱 I’m currently learning in college
-- 💞️ I’m looking to collaborate on with PRASANNA
+- 💞️ I’m looking to collaborate on with @prasannakumar0518
 - 📫 How to reach me @aathiraj716@gmail.com
 - 😄 Pronouns: STEPPING TO SUCCESS
 - ⚡ Fun fact: .......
