@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @AATHIRAJ V
-- 🌱 I’m currently learning in college
-- 📫 How to reach me @aathiraj716@gmail.com
-- 😄 Pronouns: STEPPING TO SUCCESS
-- ⚡ Fun fact: .......
+
